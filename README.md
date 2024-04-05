@@ -1,0 +1,7 @@
+- 👋 Olá, sou @TsN-27😉
+- 👀 Estou interessado em explorar os domínios do desenvolvimento de software, mergulhar no aprendizado de máquina e me aventurar em projetos de codificação criativa.
+- 🌱 Atualmente, estou aprendendo novas linguagens de programação, aprimorando minhas habilidades em análise de dados e me aprofundando em inteligência artificial.
+- 💞️ Estou procurando colaborar em projetos de código aberto que abordem problemas do mundo real e contribuam para o crescimento da comunidade tecnológica.
+- 📫 Você pode me contatar por e-mail em ochioco007@gmail.com ou conectar-se comigo no LinkedIn [aqui](https://www.linkedin.com/in/theyson-smily-b45411302).
+- 😄 Pronomes: Ele/Dele
+- ⚡ Curiosidade divertida: Sou apaixonado por programação e estou sempre buscando aprender mais. Além disso, adoro música, filmes, séries, animes e sou um grande entusiasta de jogos. Estou ansioso para desenvolver projetos interessantes em breve! 🚀
